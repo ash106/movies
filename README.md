@@ -5,3 +5,4 @@
 - The Internet's Own Boy: The Story of Aaron Swartz
 - Bridge of Spies
 - Jim Jefferies: Freedumb
+- David Cross: Making America Great Again!
